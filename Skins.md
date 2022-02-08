@@ -14,6 +14,9 @@
 ## [⩽ HyperPigeon 2.0 ⩾ 【DT】](https://drive.google.com/file/d/1-v-lRyqxRHew0s6W8naTJw8zM2WxoLlc/view?usp=sharing)
 ![](https://i.imgur.com/o2IkKKm.jpeg)
 
+## [Karthy 6.0 HyperPigeon edit](https://drive.google.com/file/d/1oGhfSSFvyiT1BLHdJpmKeeLEwe8-Y_2y/view)
+![](https://i.imgur.com/aJIjmn7.jpg)
+
 ## [azr8midnight HyperPigeon edit](https://drive.google.com/file/d/11G9vtzMDpIc52hD7U3_eJhRHqBZ77qGQ/view?usp=sharing)
 ![](https://i.imgur.com/BhAwEpu.jpeg)
 
