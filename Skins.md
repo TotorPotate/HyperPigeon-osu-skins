@@ -5,6 +5,9 @@
 
 # If any link is broken or missing, please feel free to DM me on Discord so I can fix it: *nate.#1048*
 
+## [HyperCHICKEN](https://bln.s-ul.eu/Lg8srN3K)
+![](https://i.imgur.com/kQ6nTKB.jpeg)
+
 ## [⩽ HyperPigeon 2.0 ⩾ 【HP】](https://drive.google.com/file/d/1xQSrAq_98dSkxWFVTKLrx5Mx-qbyzv-r/view?usp=sharing)
 ![](https://i.imgur.com/DpUiVe0.jpeg)
 
