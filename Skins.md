@@ -3,7 +3,10 @@
 
 # I will try my best to keep this updated.
 
-# If any link is broken or missing, please feel free to DM me on Discord so I can fix it: *nate.#1048*
+# If any link is broken or missing, please feel free to DM me on Discord or message in the Discord server so I can fix it: *nate.#1048*
+
+## [# HyperPigeon『Vv_New』#](https://bln.s-ul.eu/04JTMgLm)
+![](https://i.imgur.com/nYeFnNF.jpeg)
 
 ## [HyperCHICKEN](https://bln.s-ul.eu/Lg8srN3K)
 ![](https://i.imgur.com/kQ6nTKB.jpeg)
