@@ -4,6 +4,17 @@
 # I will try my best to keep this updated.
 
 # If any link is broken or missing, please feel free to DM me on Discord or message in the Discord server so I can fix it: *nate.#1048*
+## [# HyperPigeon『DT』#](https://ttr.s-ul.eu/A3TTewWh)
+![](https://imgur.com/Dq4Meuh)
+
+## [# HyperPigeon『BB』#](https://ttr.s-ul.eu/PPh1jR5X)
+![](https://imgur.com/lsq0kGP)
+
+## [# Zylice 2022『HP Edit』#](https://ttr.s-ul.eu/8rUoTuM3)
+![](https://imgur.com/hXpNGOu)
+
+## [# HyperPigeon『HP』#](https://ttr.s-ul.eu/wmg6YyId)
+![](https://imgur.com/7XQ5N3t.jpeg)
 
 ## [# HyperPigeon『Vv_New』#](https://bln.s-ul.eu/04JTMgLm)
 ![](https://i.imgur.com/nYeFnNF.jpeg)
